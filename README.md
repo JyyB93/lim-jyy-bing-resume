@@ -1,1 +1,0 @@
-# lim-jyy-bing-resume
